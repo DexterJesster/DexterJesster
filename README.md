@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DexterJesster
 - 👀 I’m interested in manga.
-- 🌱 I’m currently learning HTML.
+- 🌱 I’m currently learning Blender.
 - 📫 How to reach me twitter.
 
 jesrterhxhoqwofnvz
